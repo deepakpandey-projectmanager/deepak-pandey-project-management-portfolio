@@ -3,5 +3,13 @@ Project &amp; Program Management Portfolio | Digital Transformation | Agile | Hy
 # Deepak Pandey
 
 ## Senior Project Manager | Technical Program Manager | Digital Transformation Leader
-
-21+ years of IT experience...
+21+ years IT experience
+Senior Project Manager / Program Manager
+PMP
+PSM II
+BFSI
+SaaS
+Automotive
+Security & Cryptography
+Digital Transformation
+Agile / Hybrid Delivery
